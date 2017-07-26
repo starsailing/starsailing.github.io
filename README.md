@@ -1,1 +1,0 @@
-starsailing.github.io
